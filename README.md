@@ -1,2 +1,2 @@
 # -ek-takip-factoring-
-Çekleri vafesi gelenden bozdurdugun
+Çekleri vadesi gelenden bozdurdugun
